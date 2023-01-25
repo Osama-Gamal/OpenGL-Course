@@ -10,7 +10,7 @@ https://www.youtube.com/playlist?list=PLp2eAGIFKMEVpQoEqqEo4o-S1enQ59ocw
 
 
 
-![photo of pro](https://user-images.githubusercontent.com/97878002/214685066-8079559f-54fc-4744-8ac8-dfa7afb0e153.png)
+![image](https://user-images.githubusercontent.com/97878002/214685706-b50a20db-10fe-4601-90ad-c33cc9db46e8.png)
 
 ![image](https://user-images.githubusercontent.com/97878002/214685362-88bdb582-1974-4852-aa79-2e36f0d34e7b.png)
 
